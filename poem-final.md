@@ -6,9 +6,9 @@ Outside, a woman shifts from foot to foot
 in the strip of shade beneath the route map.
 When I turn the sign, she comes to the glass.
 The next bus, she says, is not the next bus anymore.
-On her phone its small blue outline doesn't move.
+On her phone the blue bus sits between two stops.
 I have already clocked out.
-The camera above the desk has not.
+The camera above the desk is still on the clock.
 Last week I signed the warning about unauthorized hours.
 I unlock the door and offer her water.
 She asks for a chair instead.
@@ -22,9 +22,9 @@ The woman knocks against the window with her ring.
 A man has lowered himself onto the curb.
 Don't lock it, she says, and goes to speak to him.
 I hold the pen above the box marked SECURED.
-My last warning is folded in my locker.
+The warning waits, folded in my locker.
 I need next week's hours. I leave the box blank.
-Under it I write: I have kept the center open.
+Under it I write: I am keeping the center open.
 They come in slowly. The man asks for an outlet.
 His daughter will be calling. No, he doesn't need to sit.
 I move the table. He plugs his own phone in.
